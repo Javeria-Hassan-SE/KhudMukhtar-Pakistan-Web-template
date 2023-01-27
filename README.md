@@ -1,1 +1,1 @@
-# KhudMukhtar-Pakistan-Web-templateate
+# KhudMukhtar-Pakistan-Web-template
